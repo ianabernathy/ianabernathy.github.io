@@ -4,7 +4,7 @@ title: 'HIGHER FASHION: HOW DESIGNERS PROFIT OFF THE POT LEAF'
 published: true
 ---
 
-Despite being the symbol for all things marijuana, the cannabis leaf is as innocuous as chomping on your run-of-the-mill leafy green. Much like the psychoactive misnomer of this foliage, high fashion’s resurgence of cannabis iconography is less potent than it claims to be.
+Despite being the symbol for all things marijuana, the cannabis leaf is as innocuous as chomping on your run-of-the-mill leafy green. Much like this psychoactive misnomer, high fashion’s resurgence of cannabis iconography is less potent than it claims to be.
 
 Perhaps reinvigorated to its full degree in Alexander Wang’s FW 2016 ready to wear collection—in which Karen Elson lookalikes donning skirts and coats embroidered with pot leaves plodded down the runway in studded, cannabis-inspired ankle boots—weed-as-muse has seen a steady rise correlative to the spread of recreational cannabis legalization in the US. Vivienne Westwood by Andreas Kronthaler welcomed the weed leaf into their quirky lexicon of oversized accessories a la Dsquared’s strappy, jeweled weed leaf stilettos from the mid-aughts; Jeremy Scott’s personal brand and many a “transgressive” fast fashion label haven’t missed a beat in this revolution either.
 
@@ -32,4 +32,4 @@ Perhaps fashion’s most intriguing representation of cannabis arrives in the fo
 
 And it’s this sort of authentic and indirect approach that actually ignites new appeal surrounding cannabis’ place in fashion, especially in an industry known for glamorizing much harder drugs. Weed...it’s just not a big deal. 
 
-Hopefully, in the fashion world and beyond—this will soon truly be the case. 
+Hopefully, in the fashion world and beyond—this will soon truly be the case.
